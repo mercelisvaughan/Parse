@@ -18,7 +18,7 @@ The following **required** functionality is completed:
 
 Here's a walkthrough of implemented user stories:
 
-<img src=https://submissions.us-east-1.linodeobjects.com/android_university/VCw08q8H.gif title='Video Walkthrough' width='' alt='Video Walkthrough' />
+<img src='https://gfycat.com/reasonablefarawayaustraliansilkyterrier' title='Video Walkthrough' width='' alt='Video Walkthrough' />
 
 GIF created with [LiceCap](http://www.cockos.com/licecap/).
 
